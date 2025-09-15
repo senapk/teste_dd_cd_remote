@@ -7,13 +7,8 @@ ffds
 g
 dsf
 gs
-
-ewr
-tre
-t
-rewt
-ew
-t
 ewt
 wet
 r
+
+Suco de goiaba não presta, quero uma coca zero.
